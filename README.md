@@ -36,6 +36,3 @@ https://ssulss.github.io/Portfolio/
 - Email: d_chernyy01@mail.ru
 - Telegram: [@chdm25](https://t.me/chdm25) 
 
----
-
-⭐ Спасибо, что заглянули! Оценю звёзды ⭐ и обратную связь по проектам.
